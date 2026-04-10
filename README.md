@@ -8,23 +8,32 @@ ${\textsf{\color{#fd006a} diagnosed with depression and social anxiety besides o
 
 <img width="1432" height="240" alt="Image" src="https://github.com/user-attachments/assets/ac0979d7-2255-4b18-bf14-475ff290599a" />
 
+
 <p align="center"> ${\textsf{\color{#340007} " where we've been inside, introduced a lead. you'll emerge alive? }}$ ${\textsf{\color{#340007} no guarantee" }}$
 
+
 <img width="1500" height="217" alt="Image" src="https://github.com/user-attachments/assets/7d88a6c6-d3df-454f-9207-2eb79a683543" />
+
 
 ${\textsf{\color{#b7004d} my fandoms atm are iron lung and doors. and .. pressure but that game was shot dead lmao uhh }}$
 
 ${\textsf{\color{#fd006a} iron lung and doors fans pls int !! }}$
 
+
 <img width="1500" height="144" alt="Image" src="https://github.com/user-attachments/assets/d7848d45-21db-4b83-a02a-254db79fa5f7" />
+
 
 <p align="center"> ${\textsf{\color{#340007} " were you really defiant as a person? maybe not. }}$ ${\textsf{\color{#340007} no reason to ascend to heaven as an astronaut" }}$
 
-<img width="2048" height="226" alt="Image" src="https://github.com/user-attachments/assets/0949940f-3225-490f-b682-7e339bb6a3ac" />
+
+  ![Image](https://github.com/user-attachments/assets/e90539f8-4783-402b-8376-0858ef4977d2) 
+  
 
 [ata](https://malharejayexe.atabook.org/) ⟡ ݁₊ . [straw](https://malhareexelolz.straw.page) ˚. ᵎᵎ [wow i wonder who this man is/nsrs](https://youtooz.com/products/astralspiff) ⊹ ࣪ ˖ [gunslol](https://guns.lol/expendable)
 
-..
+
+<img width="2048" height="226" alt="Image" src="https://github.com/user-attachments/assets/0949940f-3225-490f-b682-7e339bb6a3ac" />
+
 
 chronically afk. like i'm 90% of the time afk or offtab, please whisper instead so i don't miss your message!
 
