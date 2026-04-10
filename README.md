@@ -28,7 +28,7 @@ ${\textsf{\color{#ffffff} . }}$
 
 ${\textsf{\color{#ffffff} . }}$
 
-<p align="center"> ${\textsf{\color{#340007} " were you really defiant as a person? maybe not. }}$ ${\textsf{\color{#340007} no reason to ascend to heaven as an astronaut" }}$
+<p align="center"> ${\textsf{\color{#340007} " were you really that defiant as a person? maybe not. }}$ ${\textsf{\color{#340007} no reason to ascend to heaven as an astronaut" }}$
 
 
   ![Image](https://github.com/user-attachments/assets/e90539f8-4783-402b-8376-0858ef4977d2) 
