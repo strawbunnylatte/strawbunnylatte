@@ -37,7 +37,7 @@ ${\textsf{\color{#fd006a} iron lung and doors fans pls int !! }}$
 
 chronically afk. like i'm 90% of the time afk or offtab, please whisper instead so i don't miss your message!
 
-..
+<img width="1500" height="263" alt="Image" src="https://github.com/user-attachments/assets/f996b841-bb50-4fd5-af6b-a66c5f1d2812" />
 
 <p align="center"> ${\textsf{\color{#340007} " set course to the next, ignore all regret. }}$ ${\textsf{\color{#340007} explore the ocean and settle your debt" }}$
 
