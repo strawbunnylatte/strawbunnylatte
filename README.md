@@ -10,7 +10,7 @@ ${\textsf{\color{#fd006a} diagnosed with depression and social anxiety besides o
 
 <p align="center"> ${\textsf{\color{#340007} " where we've been inside, introduced a lead. you'll emerge alive? }}$ ${\textsf{\color{#340007} no guarantee" }}$
 
-..
+<img width="1500" height="217" alt="Image" src="https://github.com/user-attachments/assets/7d88a6c6-d3df-454f-9207-2eb79a683543" />
 
 ${\textsf{\color{#b7004d} my fandoms atm are iron lung and doors. and .. pressure but that game was shot dead lmao uhh }}$
 
