@@ -8,20 +8,25 @@ ${\textsf{\color{#fd006a} diagnosed with depression and social anxiety besides o
 
 <img width="1432" height="240" alt="Image" src="https://github.com/user-attachments/assets/ac0979d7-2255-4b18-bf14-475ff290599a" />
 
+${\textsf{\color{#ffffff} . }}$
 
 <p align="center"> ${\textsf{\color{#340007} " where we've been inside, introduced a lead. you'll emerge alive? }}$ ${\textsf{\color{#340007} no guarantee" }}$
 
+${\textsf{\color{#ffffff} . }}$
 
 <img width="1500" height="217" alt="Image" src="https://github.com/user-attachments/assets/7d88a6c6-d3df-454f-9207-2eb79a683543" />
 
+${\textsf{\color{#ffffff} . }}$
 
 ${\textsf{\color{#b7004d} my fandoms atm are iron lung and doors. and .. pressure but that game was shot dead lmao uhh }}$
 
 ${\textsf{\color{#fd006a} iron lung and doors fans pls int !! }}$
 
+${\textsf{\color{#ffffff} . }}$
 
 <img width="1500" height="144" alt="Image" src="https://github.com/user-attachments/assets/d7848d45-21db-4b83-a02a-254db79fa5f7" />
 
+${\textsf{\color{#ffffff} . }}$
 
 <p align="center"> ${\textsf{\color{#340007} " were you really defiant as a person? maybe not. }}$ ${\textsf{\color{#340007} no reason to ascend to heaven as an astronaut" }}$
 
@@ -39,7 +44,11 @@ chronically afk. like i'm 90% of the time afk or offtab, please whisper instead 
 
 <img width="1000" height="200" alt="Image" src="https://github.com/user-attachments/assets/216b27df-b015-4764-8c56-48f60742e331" />
 
+${\textsf{\color{#ffffff} . }}$
+
 <p align="center"> ${\textsf{\color{#340007} " set course to the next, ignore all regret. }}$ ${\textsf{\color{#340007} explore the ocean and settle your debt" }}$
+
+${\textsf{\color{#ffffff} . }}$
 
 <img width="2048" height="805" alt="Image" src="https://github.com/user-attachments/assets/86886d62-1155-4b5a-aba7-3ac539f22f90" />
 
