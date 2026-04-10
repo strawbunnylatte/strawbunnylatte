@@ -6,7 +6,7 @@ ${\textsf{\color{#b7004d} this github is mostly a wip, i have no energy to finis
 
 ${\textsf{\color{#fd006a} diagnosed with depression and social anxiety besides other mental illnesses, interact with exreme care at all times }}$
 
-..
+<img width="1432" height="240" alt="Image" src="https://github.com/user-attachments/assets/ac0979d7-2255-4b18-bf14-475ff290599a" />
 
 <p align="center"> ${\textsf{\color{#340007} " where we've been inside, introduced a lead. you'll emerge alive? }}$ ${\textsf{\color{#340007} no guarantee" }}$
 
