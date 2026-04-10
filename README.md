@@ -41,7 +41,7 @@ chronically afk. like i'm 90% of the time afk or offtab, please whisper instead 
 
 <p align="center"> ${\textsf{\color{#340007} " set course to the next, ignore all regret. }}$ ${\textsf{\color{#340007} explore the ocean and settle your debt" }}$
 
-..
+<img width="2048" height="805" alt="Image" src="https://github.com/user-attachments/assets/86886d62-1155-4b5a-aba7-3ac539f22f90" />
 
 ${\textsf{\color{#ff8b9c} i'm so normal about iron lung and doors guys i swear i'm cool pls interact }}$
 
