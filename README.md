@@ -20,7 +20,7 @@ ${\textsf{\color{#fd006a} iron lung and doors fans pls int !! }}$
 
 <p align="center"> ${\textsf{\color{#340007} " were you really defiant as a person? maybe not. }}$ ${\textsf{\color{#340007} no reason to ascend to heaven as an astronaut" }}$
 
-..
+<img width="2048" height="226" alt="Image" src="https://github.com/user-attachments/assets/0949940f-3225-490f-b682-7e339bb6a3ac" />
 
 [ata](https://malharejayexe.atabook.org/) ⟡ ݁₊ . [straw](https://malhareexelolz.straw.page) ˚. ᵎᵎ [wow i wonder who this man is/nsrs](https://youtooz.com/products/astralspiff) ⊹ ࣪ ˖ [gunslol](https://guns.lol/expendable)
 
