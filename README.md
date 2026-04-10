@@ -16,7 +16,7 @@ ${\textsf{\color{#b7004d} my fandoms atm are iron lung and doors. and .. pressur
 
 ${\textsf{\color{#fd006a} iron lung and doors fans pls int !! }}$
 
-..
+<img width="1500" height="144" alt="Image" src="https://github.com/user-attachments/assets/d7848d45-21db-4b83-a02a-254db79fa5f7" />
 
 <p align="center"> ${\textsf{\color{#340007} " were you really defiant as a person? maybe not. }}$ ${\textsf{\color{#340007} no reason to ascend to heaven as an astronaut" }}$
 
