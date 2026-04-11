@@ -54,5 +54,5 @@ ${\textsf{\color{#ffffff} . }}$
 
 ${\textsf{\color{#ff8b9c} i'm so normal about iron lung and doors guys i swear i'm cool pls interact }}$
 
-${\textsf{\color{#ff8b9c} random ass info in case u haven't seen my straw: my fav color is pink and i love strawberries }}$
+${\textsf{\color{#ff8b9c} random fun facts about me: my fav color is pink and i love strawberries }}$
 <img width="1500" height="211" alt="Image" src="https://github.com/user-attachments/assets/f3e0fd85-0f00-455d-88f2-0435a21d410a" />
