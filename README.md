@@ -18,7 +18,7 @@ ${\textsf{\color{#ffffff} . }}$
 
 ${\textsf{\color{#ffffff} . }}$
 
-${\textsf{\color{#b7004d} my fandoms atm are iron lung and doors. and .. pressure but that game was shot dead lmao uhh }}$
+${\textsf{\color{#b7004d} my main fandoms atm are iron lung and doors. and .. pressure but that game was shot dead lmao uhh }}$
 
 ${\textsf{\color{#fd006a} iron lung and doors fans pls int !! (and pressure fans, let's mourn together twins) }}$
 
