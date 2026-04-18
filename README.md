@@ -2,7 +2,7 @@
 
 ${\textsf{\color{#4d0310} hi, i'm jay/vanny ! }}$
 
-${\textsf{\color{#b7004d} this github is mostly a wip, i have no energy to finish it }}$
+${\textsf{\color{#b7004d} copying my skins is prohibited. i WILL block and report you }}$
 
 ${\textsf{\color{#fd006a} diagnosed with depression and social anxiety besides other mental illnesses, interact with exreme care at all times }}$
 
@@ -18,9 +18,9 @@ ${\textsf{\color{#ffffff} . }}$
 
 ${\textsf{\color{#ffffff} . }}$
 
-${\textsf{\color{#b7004d} my main fandoms atm are iron lung and doors }}$
+${\textsf{\color{#b7004d} you can find all of my fav media (games, args etc.) in strawpage. for now i'm hyperfixated on iron lung, doors, and hookah haze }}$
 
-${\textsf{\color{#fd006a} iron lung and doors fans pls int !! }}$
+${\textsf{\color{#fd006a} iron lung, doors and hookah haze fans pls int !! }}$
 
 ${\textsf{\color{#ffffff} . }}$
 
@@ -40,6 +40,10 @@ ${\textsf{\color{#ffffff} . }}$
 <img width="2048" height="226" alt="Image" src="https://github.com/user-attachments/assets/0949940f-3225-490f-b682-7e339bb6a3ac" />
 
 
+DNI: proshippers/darkshippers, minors under 13 + adults over 25 (this isn't really a strict dni, more of a thin ice, if you DO interact, do so with care), racists, homophobes, zoophiles, ableists/people who mock disabilities for fun. full dni/int in strawpage
+
+${\textsf{\color{#ffffff} . }}$
+
 chronically afk. like i'm 90% of the time afk or offtab, please whisper instead so i don't miss your message!
 
 <img width="1000" height="200" alt="Image" src="https://github.com/user-attachments/assets/216b27df-b015-4764-8c56-48f60742e331" />
@@ -52,7 +56,9 @@ ${\textsf{\color{#ffffff} . }}$
 
 <img width="2048" height="805" alt="Image" src="https://github.com/user-attachments/assets/86886d62-1155-4b5a-aba7-3ac539f22f90" />
 
-${\textsf{\color{#ff8b9c} i'm so normal about iron lung and doors guys i swear i'm cool pls interact }}$
+${\textsf{\color{#ff8b9c} i’m so normal about iron lung and doors guys i swear i’m cool pls interact }}$
 
 ${\textsf{\color{#ff8b9c} random fun facts about me: my fav color is pink and i love strawberries }}$
+
+${\textsf{\color{#ff8b9c} i'm also a hypersharing yumeshipper, list of f/os in strawpage :3 }}$
 <img width="1500" height="211" alt="Image" src="https://github.com/user-attachments/assets/f3e0fd85-0f00-455d-88f2-0435a21d410a" />
