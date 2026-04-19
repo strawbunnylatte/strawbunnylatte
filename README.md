@@ -18,9 +18,9 @@ ${\textsf{\color{#ffffff} . }}$
 
 ${\textsf{\color{#ffffff} . }}$
 
-${\textsf{\color{#b7004d} you can find all of my fav media (games, args etc.) in strawpage. for now i'm hyperfixated on iron lung, doors, and hookah haze }}$
+${\textsf{\color{#b7004d} you can find all of my fav media (games, args etc.) in strawpage. for now i'm hyperfixated on iron lung, ppt, and hookah haze }}$
 
-${\textsf{\color{#fd006a} iron lung, doors and hookah haze fans pls int !! }}$
+${\textsf{\color{#fd006a} iron lung, poppy playtime and hookah haze fans pls int !! }}$
 
 ${\textsf{\color{#ffffff} . }}$
 
