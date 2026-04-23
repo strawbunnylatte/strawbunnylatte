@@ -2,7 +2,11 @@
 
 ${\textsf{\color{#4d0310} hi, i'm jay/vanny ! }}$
 
-${\textsf{\color{#b7004d} copying my skins is prohibited. i WILL block and report you }}$
+${\textsf{\color{#4d0310} i am a vanny, roxanne wolf and cocoa fictkin, doubles please dni. yume doubles int tho, i'm hypersharing with f/os :) }}$
+
+${\textsf{\color{#b7004d} ╰┈➤ list of f/os in strawpage ݁ ˖Ი𐑼⋆ }}$
+
+# ${\textsf{\color{#b7004d} copying my skins is prohibited. i WILL block and report you }}$
 
 ${\textsf{\color{#fd006a} diagnosed with depression and social anxiety besides other mental illnesses, interact with exreme care at all times }}$
 
@@ -18,7 +22,9 @@ ${\textsf{\color{#ffffff} . }}$
 
 ${\textsf{\color{#ffffff} . }}$
 
-${\textsf{\color{#b7004d} you can find all of my fav media (games, args etc.) in strawpage. for now i'm hyperfixated on iron lung, ppt, and hookah haze }}$
+${\textsf{\color{#b7004d} you can find all of my fav media (games, args etc.) in strawpage as well. for now i'm hyperfixated on iron lung, poppy playtime, }}$
+
+${\textsf{\color{#b7004d} and hookah haze }}$
 
 ${\textsf{\color{#fd006a} iron lung, poppy playtime and hookah haze fans pls int !! }}$
 
@@ -40,7 +46,7 @@ ${\textsf{\color{#ffffff} . }}$
 <img width="2048" height="226" alt="Image" src="https://github.com/user-attachments/assets/0949940f-3225-490f-b682-7e339bb6a3ac" />
 
 
-DNI: proshippers/darkshippers, minors under 13 + adults over 25 (this isn't really a strict dni, more of a thin ice, if you DO interact, do so with care), racists, homophobes, zoophiles, ableists/people who mock disabilities for fun. full dni/int in strawpage
+DNI: proshippers/darkshippers, minors under 13 + adults over 25 (this isn't really a strict dni, more of a thin ice, if you DO interact, do so with care), racists, homophobes, zoophiles, ableists/people who mock disabilities for fun. full dni/int also in my strawpage
 
 ${\textsf{\color{#ffffff} . }}$
 
@@ -58,5 +64,6 @@ ${\textsf{\color{#ffffff} . }}$
 
 ${\textsf{\color{#ff8b9c} i’m so normal about iron lung and poppy playtime guys i swear i’m cool pls interact }}$
 
-${\textsf{\color{#ff8b9c} i'm also a hypersharing yumeshipper, list of f/os in strawpage }}$
+i'm also a beginner speedrunner, you can thank [this guy](https://www.youtube.com/@AstralSpiff) for that
+
 <img width="1500" height="211" alt="Image" src="https://github.com/user-attachments/assets/f3e0fd85-0f00-455d-88f2-0435a21d410a" />
