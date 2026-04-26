@@ -2,7 +2,7 @@
 
 ${\textsf{\color{#4d0310} hi, i'm jay/vanny ! }}$
 
-${\textsf{\color{#4d0310} i am a vanny, roxanne wolf and cocoa fictkin, doubles please dni. yume doubles int tho, i'm hypersharing with f/os :) }}$
+${\textsf{\color{#4d0310} i am a vanny, roxanne wolf, vee and cocoa fictkin, doubles please dni. yume doubles int tho, i'm hypersharing with f/os :) }}$
 
 ${\textsf{\color{#b7004d} ╰┈➤ list of f/os in strawpage ݁ ˖Ი𐑼⋆ }}$
 
