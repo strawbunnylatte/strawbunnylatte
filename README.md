@@ -40,7 +40,7 @@ ${\textsf{\color{#ffffff} . }}$
   ![Image](https://github.com/user-attachments/assets/e90539f8-4783-402b-8376-0858ef4977d2) 
   
 
-[ata](https://malharejayexe.atabook.org/) ⟡ ݁₊ . [straw](https://malhareexelolz.straw.page) ˚. ᵎᵎ [wow i wonder who this man is/nsrs](https://youtooz.com/products/astralspiff) ⊹ ࣪ ˖ [gunslol is a wip for now]
+[ata](https://malharejayexe.atabook.org/) ⟡ ݁₊ . [straw](https://malhareexelolz.straw.page) ˚. ᵎᵎ [wow i wonder who this man is/nsrs](https://youtooz.com/products/astralspiff) ⊹ ࣪ ˖ [gunslol](https://guns.lol/strwberrypawz)
 
 
 <img width="2048" height="226" alt="Image" src="https://github.com/user-attachments/assets/0949940f-3225-490f-b682-7e339bb6a3ac" />
