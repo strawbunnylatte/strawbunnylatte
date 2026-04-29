@@ -24,9 +24,9 @@ ${\textsf{\color{#ffffff} . }}$
 
 ${\textsf{\color{#b7004d} you can find all of my fav media (games, args etc.) in strawpage as well. for now i'm hyperfixated on iron lung, poppy playtime, }}$
 
-${\textsf{\color{#b7004d} and hookah haze }}$
+${\textsf{\color{#b7004d} and dandy's world }}$
 
-${\textsf{\color{#fd006a} iron lung, poppy playtime and hookah haze fans pls int !! }}$
+${\textsf{\color{#fd006a} iron lung, ppt and dw fans pls int !! }}$
 
 ${\textsf{\color{#ffffff} . }}$
 
